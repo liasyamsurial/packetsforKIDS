@@ -1,3 +1,3 @@
 # packetsforKIDS
 
-MADE for kids like ALIAH xD
+MADE for kids xD
